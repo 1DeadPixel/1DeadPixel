@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @1DeadPixel
 
-- 📫 How to reach me mc.valente@protonmail.ch
+- 📫 How to reach me mc.valente@proton.me
 
 
