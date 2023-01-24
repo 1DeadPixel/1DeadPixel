@@ -2,4 +2,5 @@
 
 - 📫 How to reach me mc.valente@proton.me
 
-
+- 👷 Working for: @PulsarFinance
+- 
